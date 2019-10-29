@@ -1,4 +1,4 @@
-#Darkcat Quotes
+#Darkcat
 
 This is a collection of quotations from our lovely dark cat
 

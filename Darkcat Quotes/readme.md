@@ -1,4 +1,4 @@
-<h3>#Darkcat Quotes</h3>
+<h2>#Darkcat Quotes</h2>
 
 Here are some screenshots of the dark cat.
 

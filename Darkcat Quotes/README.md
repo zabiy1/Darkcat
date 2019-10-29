@@ -1,13 +1,7 @@
 #Darkcat Quotes
 
-This is a collection of quotations from our lovely dark cat
+Here are some screenshots of the dark cat.
 
-Created by our true love fans
+For learning and communication only,
 
-What? You say I'm black fans?
-
-I always like dark cats.
-
-Do not believe it?
-
-Please check the warehouse carefully XD
+Please download reasonably

@@ -11,3 +11,5 @@ I always like dark cats.
 Do not believe it?
 
 Please check the warehouse carefully XD
+
+We will update it permanently

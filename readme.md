@@ -1,21 +1,22 @@
-<h1>#Darkcat</h1>
+<h1>关于Darkcat项目</h1>
 
 首先请您关注[暗猫の祝福录播组] 以便您获取到更加丰富的内容
 
 
+这个项目是我们可爱的暗猫猫的历史（黑）合集
 
-This is a collection of quotations from our lovely dark cat
+这个项目有众多真爱粉共同创造
 
-Created by our true love fans
+什么？你说我们是黑粉？
 
-What? You say I'm black fans?
+不不不！我们可是很喜欢暗猫猫的！
 
-I always like dark cats.
+不相信？
 
-Do not believe it?
+请你好好查看这个项目中的内容
 
-Please check the warehouse carefully XD
+这些内容足够证明我们对暗猫猫的爱♂
 
-We will update it permanently
+当然，我们会永远的更新它，永远......
 
   [1]: https://space.bilibili.com/386150147
